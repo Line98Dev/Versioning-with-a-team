@@ -17,7 +17,10 @@ Joshua Johannsen
 
 Corbin Curnutt
 
+This is fun. This is so much fun
+
 This summer I stayed inside due to the pandemic. I passed the time by playing video games, watching movies, and programming. Wow what a great summer.
+
 
 Jacob Goelz was here
 
